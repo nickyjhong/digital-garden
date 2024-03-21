@@ -1,0 +1,3 @@
+# New Jersey
+
+I have a newfound love for New Jersey. I've been in and out of Jersey (mostly Fort Lee) because I have family there so we usually go for the holidays. Then Janice moved into deep Jersey near Rutgers for work. I always said that I would never move to Jersey... blahblahblah... but now that I actually work in Jersey City, it's actually quite lovely here. I met some of my closest friends working at Jersey City and the commute is worth it so I could grab lunch with them! 
